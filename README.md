@@ -1,0 +1,2 @@
+# apwalhda
+You are receiving this email because you subscribed at Paid Survey Update. Hi Ahmad,  Do you prefer Apple I-Pay or PayPal to receive your rewards?  PayPal  Apple I-Pay  Discover new surveys at this premier program from well respected market research firm. Cash out with just $10 and even get paid when you don't qualify.   Many users report cashing out every month. You just can't beat it!  Click here to access paid surveys for Ahmad  Thanks,  The Team at Paid Survey Update
